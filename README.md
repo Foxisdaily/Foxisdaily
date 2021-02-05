@@ -1,5 +1,5 @@
 # Hiya I'm Fox
-kill yourself
+Yes
 
 # Contact me
 
