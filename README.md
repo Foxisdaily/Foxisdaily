@@ -1,5 +1,5 @@
 # Hiya I'm Fox
-ADD FUNYN THINGS HERE FOX OK DO IT OK OK DO IT
+kill yourself
 
 # Contact me
 
