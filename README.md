@@ -3,7 +3,7 @@ Yes
 
 # Contact me
 
-[Add Mayo](https://discord.com/oauth2/authorize?client_id=786472260931813386&permissions=8&scope=bot)
+[Add Mayo](https://discord.com/oauth2/authorize?client_id=811083329243578419&permissions=8&scope=bot)
 
 Discord Server: [Floof City](https://discord.gg/floof)
 
