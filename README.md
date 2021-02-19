@@ -1,5 +1,5 @@
 # Hiya I'm Fox
-Yes
+A cooler bio
 
 # Contact me
 
