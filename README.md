@@ -1,5 +1,5 @@
 # Hiya I'm Fox
-A cooler bio
+I want to learn how to code but im lazy.
 
 # Contact me
 
