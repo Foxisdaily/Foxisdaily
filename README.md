@@ -1,6 +1,6 @@
 # Hiya I'm Fox
 A cooler bio
 
-# Contact me
+# Links
 
-Discord Server: [Floof City](https://discord.gg/floof)
+Discord Server: [Verify Support](https://discord.gg/bCPqyR9Yqz)
